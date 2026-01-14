@@ -1,0 +1,42 @@
+# Nirgilis – sakura
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+夢心地の朝一番に
+差し込んだ光と終わってしまう恋
+明日からは別々の道てそんな突然
+心の準備が出来ない深すぎて
+直接心に触れられない
+Cherry blossom Cherry blossom
+手を振る君の肩に
+サヨナラ FALLIN LOVE
+サヨナラ FALLIN LOVE
+Cherry blossom
+独りきり吐息が紡ぐメッセージ
+サヨナラ FALLIN LOVE
+サヨナラ FALLIN LOVE
+聞こえるかな?
+空っぽなこの広い世界に
+語りだす瞳はあのままで…
+僕を見つめそっと微笑む
+なんでそんなシャンと
+立っていられるのかな?縮まらない
+何かを僕らは知っていたの?
+Cherry blossom
+どこまでも舞い散る君の声に
+サヨナラ FALLIN LOVE
+サヨナラ FALLIN LOVE
+愛おしきこの空へ
+吐息が紡ぐメッセージ
+サヨナラ FALLIN LOVE
+サヨナラ FALLIN LOVE
+Cherry blossom
+途切れない悲しみの果ては どこ?
+サヨナラ FALLIN LOVE
+サヨナラ FALLIN LOVE
+Cherry blossom Cherry blossom
+涙全て忘れて
+今から FALLIN LOVE
+今から FALLIN LOVE 届きますか?
+```
